@@ -17,3 +17,4 @@ feel free to int on ponytown, likely with vivi though.
 dni: dandy's world, hazbin hotel, helluva boss.
 yall weird.
 homophobes, transphobes, politics. like cmon? its a pony pixel game. grow a brain.
+under 15, over 20. i will hide you OR block you depending if you int and be annoying about it. just respect my boundaries.
